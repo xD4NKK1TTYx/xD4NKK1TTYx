@@ -9,4 +9,7 @@ sparklecare, any scott pilgrim media and a little bit of ranfren (perhaps im a b
 
 I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince) and i love cats
 
-queer exlus dni (people who dont like lesboys/gaybians/neopronouns/etc) cuz im literally a gaybian myself
+dni list:
+queer exclusive (people who dont like lesboys/gaybians/neopronouns/etc) cuz im literally a gaybian myself
+fans of fnf vs eteled system overload
+btd/your boyfriend fans yall are fucking weird
