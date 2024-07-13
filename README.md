@@ -8,3 +8,5 @@ sparklecare, any scott pilgrim media and a little bit of ranfren (perhaps im a b
 ^^ stuff above was mostly taken from my awesome website
 
 I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince) and i love cats
+
+queer exlus dni (people who dont like lesboys/gaybians/neopronouns/etc) cuz im literally a gaybian myself
