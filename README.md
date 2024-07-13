@@ -5,4 +5,6 @@ I also love to 3d model in blender from time to time, usually these models are f
 I like adventure time, cookie run, wakfu, roblox (specific games being phighting, regretevator, and a little bit of royale high), 
 sparklecare, any scott pilgrim media and a little bit of ranfren (perhaps im a bit of a nerd)
 
+^^ stuff above was mostly taken from my awesome website
+
 I'm also very hyperfixated on gumlee (marshall lee x prince gumball/garyprice) and i love cats
