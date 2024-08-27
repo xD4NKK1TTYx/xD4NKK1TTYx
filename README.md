@@ -12,6 +12,5 @@ I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince)
 dni list:
 queer exclusive (people who dont like lesboys/gaybians/neopronouns/etc).
 fans of fnf vs eteled system overload.
-btd/your boyfriend fans yall are fucking weird
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wz4q9xx5n73ighx257wqqh684&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ff00ae&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
