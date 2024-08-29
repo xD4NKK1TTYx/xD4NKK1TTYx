@@ -12,9 +12,6 @@ dni list:
 </br> queer exclusive 
 (people who dont like lesboys/gaybians/neopronouns/etc). 
 </br> fans of anthemoverload. 
-</br></br></br> 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wz4q9xx5n73ighx257wqqh684&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=757575&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
-</br> 
 ![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
 
 </p>
