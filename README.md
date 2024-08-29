@@ -9,10 +9,12 @@ I like adventure time, cookie run, wakfu, gravity falls, roblox (specific games 
 I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince) and i love cats 
 
 dni list: 
-</br> queer exclusive 
-(people who dont like lesboys/gaybians/neopronouns/etc). 
 </br> 
-fans of anthemoverload. 
+queer exclusive 
+(people who dont like lesboys/gaybians/neopronouns/etc). 
+</br>
+fans of anthemoverload.
+</br></br>
 ![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
 
 </p>
