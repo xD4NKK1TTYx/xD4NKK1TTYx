@@ -13,7 +13,7 @@ dni list:
 queer exclusive people
 (people who dont like lesboys/gaybians/neopronouns/etc). 
 </br>
-fans of anthemoverload, hes a groomer.
+fans of anthemoverload or anyone working with him on fnf mods, hes a groomer.
 </br>
 idgaf about anything else just dont be a weirdo
 </br></br>
