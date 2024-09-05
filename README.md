@@ -1,4 +1,5 @@
 <h1>KASPERSPACE !</h1>
+<h2>(mainly ponytown stuff,,)</h2>
 Hello, I'm Kasper (not the friendly ghost), I'm 13, I'm autistic, my birthday is on August 30th, and I go by they/he pronouns! </br> as stated before, I'm a artist, I mainly draw humans and anthros (i'm not a furry), though I do try to branch out to other things like robots and stuff. 
 </br> 
 I also love to 3d model in blender from time to time, usually these models are for VRChat. I also do website coding liek html and css, im not good with javascript though :,-( 
