@@ -10,10 +10,10 @@ I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince)
 
 dni list: 
 </br> 
-queer exclusive 
+queer exclusive people
 (people who dont like lesboys/gaybians/neopronouns/etc). 
 </br>
-fans of anthemoverload.
+fans of anthemoverload, hes a groomer.
 </br></br>
 ![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
 
