@@ -3,7 +3,7 @@ Hello, I'm Kasper (not the friendly ghost), I'm 14, I'm autistic, my birthday is
 </br> 
 I also love to 3d model in blender from time to time, usually these models are for VRChat. I also do website coding liek html and css, im not good with javascript though :,-( 
 </br></br> 
-I like adventure time, cookie run, wakfu, gravity falls, roblox games (ask for specifics), sparklecare, any scott pilgrim media and a little bit of ranfren (perhaps im a bit of a nerd) 
+My main interests r Adventure Time, Cookie Run and Roblox ^u^ 
 
 
 I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince) and i love cats 
