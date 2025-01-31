@@ -6,14 +6,14 @@ I also love to 3d model in blender from time to time, usually these models are f
 My main interests r Adventure Time, Cookie Run and Roblox ^u^ 
 
 
-I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince) and i love cats 
+My biggest OTP evr is gumlee heuheu 
 
 dni list: 
 </br> 
 queer exclusive people
 (people against good faith identities). 
 </br>
-fans of anthemoverload or anyone working with him on fnf mods, [he groomed me](https://docs.google.com/document/d/1Qpd6Ja29HxvOnkjD7Uzs79uq8UxU1iA_0SoSszcDEXQ/edit?usp=sharing).
+fans of anthemoverload or system overload, [he's an abuser](https://docs.google.com/document/d/1Qpd6Ja29HxvOnkjD7Uzs79uq8UxU1iA_0SoSszcDEXQ/edit?usp=sharing).
 </br>
 idgaf about anything else just dont be a weirdo
 </br></br>
