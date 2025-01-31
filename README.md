@@ -11,7 +11,7 @@ I'm also very hyperfixated on gumlee (marshall lee x prince gumball/gary prince)
 dni list: 
 </br> 
 queer exclusive people
-(people who dont like lesboys/gaybians/neopronouns/etc). 
+(people against good faith identities). 
 </br>
 fans of anthemoverload or anyone working with him on fnf mods, [he groomed me](https://docs.google.com/document/d/1Qpd6Ja29HxvOnkjD7Uzs79uq8UxU1iA_0SoSszcDEXQ/edit?usp=sharing).
 </br>
