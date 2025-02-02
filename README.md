@@ -20,3 +20,8 @@ idgaf about anything/anyone else just dont be a weirdo towards me
   
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 </p>
+<p>
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wz4q9xx5n73ighx257wqqh684&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ee11c1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+  
+</p>
