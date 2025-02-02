@@ -12,7 +12,7 @@ My biggest OTP evr is gumlee heuheu
 queer exclusive people freak off
 (people against good faith identities). 
 </br>
-idgaf about anything else just dont be a weirdo towards me
+idgaf about anything/anyone else just dont be a weirdo towards me
 </br></br>
 ![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
 
