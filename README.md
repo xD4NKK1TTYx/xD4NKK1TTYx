@@ -14,6 +14,6 @@ queer exclusive people freak off
 </br>
 idgaf about anything/anyone else just dont be a weirdo towards me
 </br></br>
-![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
+![](https://komarev.com/ghpvc/?username=your-github-username&color=pink)
 
 </p>
