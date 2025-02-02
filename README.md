@@ -13,9 +13,7 @@ dni list:
 queer exclusive people
 (people against good faith identities). 
 </br>
-fans of anthemoverload or system overload, [he's an abuser](https://docs.google.com/document/d/1Qpd6Ja29HxvOnkjD7Uzs79uq8UxU1iA_0SoSszcDEXQ/edit?usp=sharing).
-</br>
-idgaf about anything else just dont be a weirdo
+idgaf about anything else just dont be a weirdo towards me
 </br></br>
 ![Visitor Count](https://profile-counter.glitch.me/{KASPERSPACE}/count.svg)</h3>
 
