@@ -8,9 +8,8 @@ My main interests r Adventure Time, Cookie Run and Roblox ^u^
 
 My biggest OTP evr is gumlee heuheu 
 
-dni list: 
 </br> 
-queer exclusive people
+queer exclusive people freak off
 (people against good faith identities). 
 </br>
 idgaf about anything else just dont be a weirdo towards me
