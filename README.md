@@ -14,7 +14,9 @@ queer exclusive people freak off
 </br>
 idgaf about anything/anyone else just dont be a weirdo towards me
 
+</p>
 
+<p>
+  
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
-
 </p>
