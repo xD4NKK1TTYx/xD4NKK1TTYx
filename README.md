@@ -13,7 +13,7 @@ queer exclusive people freak off
 (people against good faith identities). 
 </br>
 idgaf about anything/anyone else just dont be a weirdo towards me
-</br></br>
+
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=pink)
 
 </p>
