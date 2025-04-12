@@ -22,6 +22,6 @@ idgaf about anything/anyone else just dont be a weirdo towards me
 </p>
 <p>
 
-![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=1)
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=6)
   
 </p>
