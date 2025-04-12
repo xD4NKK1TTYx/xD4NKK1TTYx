@@ -22,6 +22,6 @@ idgaf about anything/anyone else just dont be a weirdo towards me
 </p>
 <p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wz4q9xx5n73ighx257wqqh684&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ee11c1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=1)
   
 </p>
