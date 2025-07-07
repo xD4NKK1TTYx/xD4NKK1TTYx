@@ -19,5 +19,6 @@ idgaf about anything/anyone else just dont be a weirdo towards me
 [<img src="https://64.media.tumblr.com/696114a32c7ca3059da3ff1e4fdba582/736a4281092b779e-2f/s75x75_c1/db534c722474e1e51871a9c2927597083614cc5c.gifv">](https://www.tumblr.com/virualors/773305513679175680/yaoi-button-to-match-your-yuri-one)
 [<img src="https://64.media.tumblr.com/0a60f6465cb7bd66cf95dc2071cca46c/45dcac56db69ca43-bf/s75x75_c1/809dc481a815ee210e074f75150591f49c4b9519.gifv">](https://www.tumblr.com/virualors/773606221458669568)
 [<img src="https://64.media.tumblr.com/0a60f6465cb7bd66cf95dc2071cca46c/45dcac56db69ca43-bf/s75x75_c1/809dc481a815ee210e074f75150591f49c4b9519.gifv">](https://www.tumblr.com/virualors/773606221458669568)
-[<im src="https://64.media.tumblr.com/0f645f0d9e491c87c93d090151cb38fa/595bdd4897158cca-d5/s100x200/29109fc10cdcbd6d6a3dc6f28a7e278d1e9e49f9.gifv">](https://www.tumblr.com/galactic-graphix/772525355874631680/jug-themed-graphics)
+
+
 <p>click on graphics above to go to their sources :-)</p>
