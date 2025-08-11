@@ -1,5 +1,4 @@
-<img src="https://kasperspace.nekoweb.org/images/altlogo.png">
-<p>HEY!! my names Kasper (not the friendly ghost) aka KASPERSPACE, I'm 14 years old, and very effing queer,,, I'm also a nekokin and a infected fictkin</p>
+<p>HEY!! my names Kasper (not the friendly ghost), I'm 14 years old, and very effing queer,,, I'm also a nekokin and a infected fictkin</p>
 <p>I make art from time to time, and I made vrchat avatars with blender and unity. I also do website coding liek html and css, I don't know any javascript though :,-(</p>
 <p>My main interest is Roblox, though I also adore Adventure Time, Deltarune and Toontown: Corporate Clash ^u^</p>
 
