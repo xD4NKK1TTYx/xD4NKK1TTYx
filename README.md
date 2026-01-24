@@ -1,4 +1,4 @@
-<p>HEY!! my names Kasper (not the friendly ghost), I'm 15 years old, and very effing queer,,, I'm also a nekokin and a infected fictkin</p>
+<p>Hi im kody</p>
 <p>I make art from time to time, and I made vrchat avatars with blender and unity. I also do website coding liek html and css, I don't know any javascript though :,-(</p>
 <p>My main interest is Roblox, though I also fw Postal 2, Adventure Time, Deltarune and Toontown: Corporate Clash ^u^</p>
 
