@@ -1,12 +1,8 @@
 <p>Hi I'm Kody/Kasper</p>
 <p>I make art from time to time, and I made vrchat avatars with blender and unity. I also do website coding liek html and css, I don't know any javascript though :,-(</p>
 <p>My main interest is Roblox, though I also fw Postal 2, Adventure Time, Deltarune and Toontown: Corporate Clash ^u^</p>
-<p>If you're seeing my page from pony town I might be using it on my school chromebook to talk to friends in whispers, you can whisper if you'd like but I may not notice sorry</p>
+<p>If you're seeing my page from pony town read my rentry ty</p>
 
-queer exclusive people freak off
-(people against good faith identities). 
-</br>
-idgaf about anything/anyone else just dont be a weirdo towards me
 <br><br>
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
