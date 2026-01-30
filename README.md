@@ -3,7 +3,6 @@
 <p>My main interest is Roblox, though I also fw Postal 2, Adventure Time, Deltarune and Toontown: Corporate Clash ^u^</p>
 <p>If you're seeing my page from pony town read my rentry ty</p>
 
-<br><br>
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=6)
