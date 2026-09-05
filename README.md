@@ -3,6 +3,8 @@ hi im dank aka infected kasper or kody
 my main interests are roblox, and adventure time
 </br>
 more info about me is on my nekoweb website
+</br>
+i dont list my age for the sake of privacy, sorry
 
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
