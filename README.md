@@ -5,6 +5,11 @@ my main interests are roblox, and adventure time
 more info about me is on my nekoweb website
 </br>
 i dont list my age for the sake of privacy, sorry
+</br>
+</br>
+if you're from ponytown i recommend going on my rentry, though do note i use a heavy typing quirk on there
+</br>
+ask me questions in my whispers or on my guestbook if you're confused when reading anything on there, ty
 
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
