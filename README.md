@@ -1,6 +1,6 @@
 hi im Kody/Kasper
 </br>
-my main interests are Roblox, and Adventure Time
+my main interests are roblox, and adventure time
 </br>
 more info about me is on my nekoweb website
 
