@@ -1,4 +1,4 @@
-hi im Kody/Kasper
+hi im dank aka infected kasper or kody
 </br>
 my main interests are roblox, and adventure time
 </br>
