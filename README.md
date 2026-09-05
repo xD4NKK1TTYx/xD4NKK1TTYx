@@ -1,6 +1,6 @@
 <p>Hi I'm Kody/Kasper</p>
 <p>I make art from time to time, and I made vrchat avatars with blender and unity. I also do website coding liek html and css, I don't know any javascript though :,-(</p>
-<p>My main interest is Roblox, though I also fw Postal 2, Adventure Time, Deltarune and Toontown: Corporate Clash ^u^</p>
+<p>My main interests are Roblox, and Adventure Time</p>
 
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
