@@ -1,6 +1,6 @@
 <p>Hi I'm Kody/Kasper</p>
-<p>I make art from time to time, and I made VRChat avatars with blender and unity. I also do website coding liek html and css, I don't know any javascript though :,-(</p>
 <p>My main interests are Roblox, and Adventure Time</p>
+<p>More info about me is on my nekoweb website</p>
 
 ![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
 <br>
