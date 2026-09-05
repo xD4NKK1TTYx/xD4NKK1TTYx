@@ -2,9 +2,9 @@ hi im dank aka infected kasper or kody
 </br>
 my main interests are roblox, and adventure time
 </br>
-more info about me is on my nekoweb website
-</br>
 i dont list my age for the sake of privacy, sorry
+</br>
+more info about me is on my nekoweb website
 </br>
 </br>
 if you're from ponytown i recommend going on my rentry, though do note i use a heavy typing quirk on there
