@@ -11,6 +11,6 @@ if you're from ponytown i recommend going on my rentry, though do note i use a h
 </br>
 ask me questions in my whispers or on my guestbook if you're confused when reading anything on there, ty
 
-![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4)
+![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4&plastic&label=<3)
 <br>
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=6)
