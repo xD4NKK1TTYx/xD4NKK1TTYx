@@ -2,7 +2,7 @@ hi im dank aka infected kasper or kody
 </br>
 my main interests are roblox, and adventure time
 </br>
-i dont list my age for the sake of privacy, sorry
+i dont list my age for the sake of privacy, i am 16+ though
 </br>
 more info about me is on my nekoweb website
 </br>
