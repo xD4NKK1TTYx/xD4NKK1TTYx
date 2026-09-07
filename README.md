@@ -4,6 +4,8 @@ my main interests are roblox, and adventure time
 </br>
 i dont list my age for the sake of privacy, i am 16+ though
 </br>
+im taken by the best boyfriend ever
+</br>
 more info about me is on my nekoweb website
 </br>
 </br>
