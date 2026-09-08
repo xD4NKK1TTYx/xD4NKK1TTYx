@@ -21,6 +21,9 @@ ___
 if you're from ponytown i recommend going on my rentry, though do note i use a heavy typing quirk on there
 </br>
 ask me questions in my whispers or on my guestbook if you're confused when reading anything on there, ty
+</br>
+</br>
+yeah i hang out at the "protree area" but i dont concern myself with using ship discourse labels (the only ships i really even gaf abt are gumlee and skaterbeetle) but idc if youre proship or antiship or a comshipper darkshipper whateverthefartshipper as long as being any of those isnt your whole personality trait. you can block me for not having a black and white stance on ship discourse though i couldnt gaf
 </p>
 </div>
 
