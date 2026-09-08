@@ -30,9 +30,9 @@ ___
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4&plastic&label=<3)
-<br>
 ![My scrobbles](https://lastfm-recently-played.vercel.app/api?user=kasperspace&count=6)
+</br>
+![](https://komarev.com/ghpvc/?username=kasperspace&color=ff69b4&plastic&label=<3)
 
 </div>
 </p>
