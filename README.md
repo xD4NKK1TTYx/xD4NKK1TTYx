@@ -2,7 +2,7 @@
 <img src="https://files.catbox.moe/scqrfe.png" width="400">
 </div>
 
-<br>
+___
 
 <p align="center">
 hi im dank aka infected kasper or kody
@@ -15,11 +15,18 @@ im taken by the best boyfriend ever
 </br>
 more info about me is on my nekoweb website
 </br>
-</br>
+</div>
+
+___
+
+<p align="center">
 if you're from ponytown i recommend going on my rentry, though do note i use a heavy typing quirk on there
 </br>
 ask me questions in my whispers or on my guestbook if you're confused when reading anything on there, ty
 </p>
+</div>
+
+___
 
 <div align="center">
   
@@ -29,3 +36,5 @@ ask me questions in my whispers or on my guestbook if you're confused when readi
 
 </div>
 </p>
+
+___
