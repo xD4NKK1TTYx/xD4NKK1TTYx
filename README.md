@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/56f2e8e716a43e0c7b3ff0565b89ed9a/c0ec5d5755c014b6-0c/s540x810/ddf759838da8ffdc538049ce2873dc4376e0a40d.gifv" width="500">
 </div>
 
-<p align="center">
+<div align="center">
 hi im dank aka infected kasper or kody
 </br>
 my main interests are roblox, and adventure time
@@ -14,10 +14,9 @@ im taken by the best boyfriend ever
 more info about me is on my nekoweb website
 </br>
 </div>
+</br>
 
-___
-
-<p align="center">
+<div align="center">
 if you're from ponytown i recommend going on my rentry, though do note i use a heavy typing quirk on there
 </br>
 ask me questions in my whispers or on my guestbook if you're confused when reading anything on there, ty
@@ -25,6 +24,7 @@ ask me questions in my whispers or on my guestbook if you're confused when readi
 </div>
 
 ___
+
 
 <div align="center">
   
